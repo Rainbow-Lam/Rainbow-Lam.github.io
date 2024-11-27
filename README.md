@@ -2,7 +2,6 @@
 
 ### Education
 **B.A.** Psychology Specialist
-
 Universtiy of Toronto *May 2026 (Expected)*
 
 ## Project in preparation 
